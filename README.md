@@ -4,14 +4,7 @@ g gfhnm gfhnmfg
 'f fd dfgb fgn fghn fg
 g ngfhngfhnfghnmgfhn fg
 asc sadcascascac
-a cas
- c
- saasc
- a
- sc
- asc
- acs
- asc
- csa
-
- asas
+adscsd sdc sdc sdc sdc sdc sdc sdc sdc sdc 
+sdc sdcsdcsdcsd csdcsdcsdc sdc sdc sdc sdc
+sd csdcsdc sdcs dcs dcsdc sdc sdc sdc dscsd 
+sd csdcsdc sdc sdc sdcsdcsdcsdcsdcdscsdcsdcsdc
